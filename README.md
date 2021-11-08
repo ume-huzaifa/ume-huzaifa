@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ume-huzaifa
 - 👀 I’m an Entrepreneur and an investor 
 - 🌱 I’m currently learning AI and Blockchain
-- 💞️ I along with my Husband work on state of the art products
+- 💞️ I along with my partner work on state of the art products
 - 📫 We are always open for discovering passive ways of income. Feel free to reach out to us 
 
 <!---
